@@ -1,3 +1,3 @@
 ## 🌐 Website
 
-🔗 **[website portofolio](https://univmajalengka.github.io/2514101046/PABW/)**
+🔗 **[website portofolio](https://deprian.github.io/Deprian69/)**
